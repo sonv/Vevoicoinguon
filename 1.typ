@@ -8,9 +8,9 @@ jokingly call “gõ đầu trẻ”#footnote[Literally “knocking on children�
 His first post was at the Hải Dương town elementary school. Later 
 he moved to Nam Sách district in the same province.
 
-To mark the occasion, he even wrote a short story titled GODAUTRE in French style. 
+To mark the occasion, he even wrote a short story titled _GODAUTRE_ in French style. 
 A few years later, he wrote another story for children, 
-_A Golden Heart (Tấm Lòng Vàng)_. 
+_Tấm Lòng Vàng ("A Golden Heart")_. 
 Although written as fiction, it was in fact based on a true incident from those years in Nam Sách—an incident in which my parents themselves were directly involved.
 
 According to the civil service regulations of that time,
@@ -31,8 +31,9 @@ Once it gathered speed, they would leap onto it and ride a long stretch down the
 responsible for inspecting the line and reporting any damage in need of repair.)
 
 When I was in Lào Cai, my father sometimes took me out with him.
-Years later, when I was grown and read the short stories he published in the column
-Turbulent Society (Xã Hội Ba Đào Ký) of the journal An Nam,
+Years later, when I was grown and read the short 
+stories he published in the column _Xã Hội Ba Đào Ký ("Turbulent Society")_
+ of the journal An Nam,
 I recognized in them the scenes of the gambling houses in Cốc Lếu--
 places I had passed by as a child, though at the time I hadn’t understood what they were.
 
@@ -107,7 +108,7 @@ my father brought my elder brother and me to the school to play;
 we even sat in on a class.
 While we were sitting quietly, my father assigned my brother Tài Khoái
 (my elder brother, who later died in 1947)
-to learn by heart the poem _The Charcoal Sellers on the Mountain (Vợ Chồng Người Bán Than Trên Núi)_ by Tản Đà.
+to learn by heart the poem _Vợ Chồng Người Bán Than Trên Núi (The Charcoal Sellers on the Mountain)_ by Tản Đà.
 Near the end of class, my father called on Khoái to recite.
 He stood and delivered the whole poem flawlessly from memory—
 while many of the pupils, despite repeatedly studying it, still could not.
