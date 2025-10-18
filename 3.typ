@@ -1,7 +1,7 @@
-= Where are the _rươi_#footnote[_Rươi_: seasonal tidal ragworms used as a Northern Vietnamese delicacy.]?
+= 3. Where are the _rươi_#footnote[_Rươi_: seasonal tidal ragworms used as a Northern Vietnamese delicacy.]?
 
 Perhaps it’s the same in any family:
-when the head of a household 
+when the head of a household
 has a favorite dish,
 everyone else tends to pick up
 the habit—and the taste.
@@ -144,3 +144,4 @@ meant there was still another dish yet to be served!
 A hearty laugh was had by all.
 
 Hà Nội, August 22, 1996
+

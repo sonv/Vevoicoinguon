@@ -1,4 +1,4 @@
-= A request to eat fish 
+= 2. A request to eat fish
 
 Speaking of Sài Gòn, my mother
 often recalled one story.
@@ -43,7 +43,7 @@ would return to Nam Định by the
 express train from Saigon.
 
 
-One day, the “wire-house”#footnote[Old Vietnamese phrase for the Post & Telegraph office.] 
+One day, the “wire-house”#footnote[Old Vietnamese phrase for the Post & Telegraph office.]
 delivered a telegram from my father:
 It gave the exact date he would arrive
 back in Nam Định, and—most unusually—
@@ -86,3 +86,4 @@ delighted by my father’s playful,
 mischievous streak.
 
 Hà Nội, August 23, 1996
+

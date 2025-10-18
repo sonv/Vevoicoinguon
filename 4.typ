@@ -1,4 +1,4 @@
-= The Hardships of Schoolteacher–Writer Nguyễn Công Hoan
+= 4. The Hardships of Schoolteacher–Writer Nguyễn Công Hoan
 
 Speaking of the difficulties
 the French colonial authorities
@@ -127,7 +127,7 @@ So once, just for a bit of fun, on mail day he suddenly cried out,
 Hearing only the shout, friends rushed over, thinking
 he’d finally heard from home, only to catch the punch line.
 
-According to Khải, by that point it was no longer 
+According to Khải, by that point it was no longer
 necessary to hide my uncle’s identity,
 so he finally let our family know.
 
@@ -442,3 +442,4 @@ to join the Indochinese Communist Party.
 
 Hà Nội, August 8, 1996 \
 On the anniversary of the August Revolution.
+

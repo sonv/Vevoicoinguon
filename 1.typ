@@ -1,20 +1,20 @@
-= My father Nguyễn Công Hoan, his children and students
+= 1. My father Nguyễn Công Hoan, his children and students
 
-Around 1930, I was still just a child. 
-After graduating from the 
-Hanoi College of Pedagogy, 
-my father began his life as a schoolteacher—what we  
-jokingly call “gõ đầu trẻ”#footnote[Literally “knocking on children’s heads,” a Vietnamese slang.]. 
-His first post was at the Hải Dương town elementary school. Later 
+Around 1930, I was still just a child.
+After graduating from the
+Hanoi College of Pedagogy,
+my father began his life as a schoolteacher—what we
+jokingly call “gõ đầu trẻ”#footnote[Literally “knocking on children’s heads,” a Vietnamese slang.].
+His first post was at the Hải Dương town elementary school. Later
 he moved to Nam Sách district in the same province.
 
-To mark the occasion, he even wrote a short story titled _GODAUTRE_ in French style. 
-A few years later, he wrote another story for children, 
-_Tấm Lòng Vàng ("A Golden Heart")_. 
+To mark the occasion, he even wrote a short story titled _GODAUTRE_ in French style.
+A few years later, he wrote another story for children,
+_Tấm Lòng Vàng ("A Golden Heart")_.
 Although written as fiction, it was in fact based on a true incident from those years in Nam Sách—an incident in which my parents themselves were directly involved.
 
 According to the civil service regulations of that time,
-every government employee had to spend a few years working in the  highlands.
+every government employee had to spend a few years working in the highlands.
 So after his years in Nam Sách, my father was assigned to Lào Cai,
 where he taught at the town school.
 My mother and the children, however, remained in Hải Dương.
@@ -31,9 +31,9 @@ Once it gathered speed, they would leap onto it and ride a long stretch down the
 responsible for inspecting the line and reporting any damage in need of repair.)
 
 When I was in Lào Cai, my father sometimes took me out with him.
-Years later, when I was grown and read the short 
+Years later, when I was grown and read the short
 stories he published in the column _Xã Hội Ba Đào Ký ("Turbulent Society")_
- of the journal An Nam,
+of the journal An Nam,
 I recognized in them the scenes of the gambling houses in Cốc Lếu--
 places I had passed by as a child, though at the time I hadn’t understood what they were.
 
@@ -55,7 +55,7 @@ On the way back, as we rode downhill, the bicycle brake suddenly snapped.
 We went hurtling straight ahead and crashed into the wall of a house at the bottom.
 Both of us were thrown to the ground.
 I landed face down, unconscious, with my stomach slammed against a big stone,
-leaving a swollen lump. 
+leaving a swollen lump.
 I was rushed to the district hospital,
 which stood on a hill near the school.
 
@@ -246,3 +246,4 @@ But when it came time to grade, my father gave me a big “egg”—a round zero
 The reason: my prank of twisting my name into wordplay.
 
 Hà Nội, June 26, 1996
+

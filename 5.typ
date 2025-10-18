@@ -1,4 +1,4 @@
-= How I first met Uncle Hồ
+= 5. How I first met Uncle Hồ
 
 
 At that time
@@ -33,12 +33,12 @@ To be sent to train for fighting the Japanese—
 what joy could compare!
 
 That night I only had time
-to hand my network over 
+to hand my network over
 to another comrade,
 go to a safehouse to borrow
 an old brown peasant outfit,
 a _nón lá_#footnote[Vietnamese traditional conical hat],
-and gather a little money 
+and gather a little money
 chipped in by the brothers.
 That was all I had
 for the journey to the base.
@@ -47,7 +47,7 @@ for the journey to the base.
 Guided by the couriers,
 our group of several dozen
 reached Vân village,
-where our side was in control 
+where our side was in control
 day and night.
 Only then did we have the chance
 to meet as a group.
@@ -134,10 +134,10 @@ before beginning training.
 Among us were comrades
 who had lived in Hà Nội
 and recognized him
-as Võ Nguyên Giáp#footnote[Võ Nguyên Giáp (1911–2013) 
-was Vietnam’s preeminent military commander and strategist—the 
-architect of the 1954 Điện Biên Phủ victory over France and a key 
-leader of the People’s Army in the wars against the United 
+as Võ Nguyên Giáp#footnote[Võ Nguyên Giáp (1911–2013)
+was Vietnam’s preeminent military commander and strategist—the
+architect of the 1954 Điện Biên Phủ victory over France and a key
+leader of the People’s Army in the wars against the United
 States—later serving as defense minister and statesman.].
 
 After the group meeting,
@@ -178,7 +178,7 @@ and whispered something strange:
 to shorten his path
 he had slipped behind
 Mr. Tiến Sự’s house
-and had seen the  
+and had seen the
 very old man
 I had spoken to on our first day
 talking with Văn.
@@ -264,3 +264,4 @@ while still so naive,
 in front of Him.
 
 December 1994
+
