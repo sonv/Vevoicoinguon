@@ -14,3 +14,12 @@
 #include "5.typ"
 
 #include "6.typ"
+#include "7.typ"
+#include "8.typ"
+#include "9.typ"
+#include "10.typ"
+#include "11.typ"
+#include "12.typ"
+#include "13.typ"
+#include "14.typ"
+#include "15.typ"
