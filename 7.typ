@@ -1,12 +1,12 @@
 = 7. Cụ Minh Già
 
 At the end of September 1945, when I returned from Tân Trào to Hà Nội with Lê Giản
-and was assigned to the Security Service Bureau in Northern Vietnam,
-“old Minh” — cụ Minh già — was already there.
-After the August Revolution, the Party placed him in Public Security
+and was assigned to Nha Liêm phóng Bắc Bộ,
+“old Minh”  was already there.
+After the August Revolution of 1945, the Party placed him in Công an
 because he had long experience being arrested by French intelligence
 and spending years in prison.
-He headed the Political Department (now Political Security)
+He headed the Phòng Chính trị (now An ninh chính trị)
 under the name Bùi Đức Minh.
 
 The same age as my father,
@@ -30,7 +30,7 @@ $ * * * $
 
 One morning in late 1945,
 Hoàng Văn Hoan — whom I had met in Tân Trào —
-came to the Bureau.
+came to Nha Liêm phóng.
 He looked for Lê Giản but did not find him,
 so he met me instead.
 As we walked along the upstairs corridor,
@@ -42,7 +42,7 @@ I asked Hoàng Mỹ,
 and he replied, “That’s old Minh — who else?”
 
 After that meeting,
-the “Reorganized Việt Nam Quốc Dân Đảng” appeared
+the Việt Nam Quốc Dân Đảng cải tổ appeared
 (to counter Vũ Hồng Khanh’s faction).
 In the list of founders was the name of “old Minh.”
 From then on, the Quốc Dân Đảng — especially Vũ Hồng Khanh
@@ -51,7 +51,7 @@ saw him as a sworn enemy.
 They ordered their men to find a way to assassinate him.
 
 But every day,
-“old Minh” still walked calmly to the Bureau to work.
+“old Minh” still walked calmly to Nha Liêm phóng to work.
 
 He enjoyed traditional opera (tuồng).
 Despite threats from the Quốc Dân Đảng,
@@ -86,7 +86,7 @@ to report to the Central Committee.
 Fortunately, Thụ later returned safely as well.
 He told us how he explained to the soldier
 that he was going to Lào Cai to do business,
-saw one guy got off the train,
+saw one guy get off the train,
 thought the train had reached a station,
 and jumped off by mistake.
 A few coins slipped into the soldier’s hand
@@ -99,7 +99,7 @@ he would not have known how to explain to the Central Committee.
 
 $ * * * $
 
-In 1951, the Public Security sector issued rules
+In 1951, Công an issued rules
 prohibiting the use of torture.
 But right after the August Revolution in 1945,
 interrogation was still rough.
@@ -163,13 +163,13 @@ Still smiling, Minh explained:
 He thought I was going to shock him,
 so he acted it out himself.”
 
-Back in the day, we all admired his sharp and witty mind!
+Back in the day, we all admired his sharp and witty mind.
 
 $ * * * $
 
 During the national resistance against the French,
-Minh was appointed Director of Public Security for Zone X.
-At the annual national Public Security Conferences,
+Minh was appointed Giám đốc Công an Khu X.
+At the annual national Hội nghị Công an toàn quốc,
 he often hosted the meetings —
 sometimes in Tuyên Quang, sometimes in Phú Thọ.
 Colleagues told me many good stories about him.
@@ -178,7 +178,7 @@ At that time Việt Trì was not yet occupied.
 Vĩnh Yên and Phúc Yên were still free zones.
 Boats from Tuyên Quang to Việt Trì
 often traveled at night to avoid French aircraft.
-There were complaints about the Public Security checkpoint
+There were complaints about the Trạm kiểm soát của Công an
 at the Việt Trì landing.
 
 One rainy night,
@@ -206,19 +206,19 @@ Your Director said it.”
 
 Everyone stared in surprise.
 The quiet man who had chatted cheerfully earlier
-turned out to be the Director of Public Security.
+turned out to be the Giám đốc Công an.
 
 Naturally, the young officer was later disciplined,
 and the checkpoint changed its ways.
 
 After the Border Campaign victory,
-Minh was appointed Consul of Vietnam in Kunming,
+Minh was appointed Lãnh sự Việt Nam tại Côn Minh,
 where many overseas Vietnamese lived,
 and where he himself had once worked underground.
 
 After the liberation of Hà Nội,
-he returned to the Ministry of Public Security
-and served as Director of the Labor Reform Department,
+he returned to the Bộ Công an
+and served as Giám đốc Vụ Lao Cải,
 overseeing prison camps,
 until illness forced him to retire in 1960.
 He passed away a few years later.
