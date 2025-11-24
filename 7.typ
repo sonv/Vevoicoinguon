@@ -55,7 +55,7 @@ But every day,
 
 He enjoyed traditional opera (tuồng).
 Despite threats from the Quốc Dân Đảng,
-he sometimes went alone to the Quảng Lạc theater on Hàng Bạc Street.
+he sometimes went alone to the Quảng Lạc theater on Hàng Bạc street.
 He wore a dark silk tunic, a folded turban,
 and leather sandals with rounded toes,
 and carried no weapon.
@@ -86,21 +86,24 @@ to report to the Central Committee.
 Fortunately, Thụ later returned safely as well.
 He told us how he explained to the soldier
 that he was going to Lào Cai to do business,
+saw one guy got off the train,
 thought the train had reached a station,
 and jumped off by mistake.
 A few coins slipped into the soldier’s hand
 convinced him to let Thụ go.
 
 The journey to Vân Nam had to be abandoned.
-As for Minh, it left him shaken —
+As for Minh, it gave him quite a scare —
 for had Thụ been arrested,
 he would not have known how to explain to the Central Committee.
 
+$ * * * $
+
 In 1951, the Public Security sector issued rules
 prohibiting the use of torture.
-But right after the August Revolution,
+But right after the August Revolution in 1945,
 interrogation was still rough.
-Minh once told the younger officers:
+However, Minh told the younger interrogators:
 
 “You beat people with batons or crank electricity.
 It leaves marks and gives you a bad name.
@@ -134,7 +137,6 @@ who was also named Minh.
 Our interrogators reported
 that he could not withstand electric shocks
 and fainted repeatedly.
-
 Old Minh said,
 “I’ve known him for years.
 He’s experienced.
@@ -142,30 +144,28 @@ Let me make him reveal himself.”
 
 They brought the man to Minh’s office.
 We watched.
-Minh attached a hand-crank generator (manhêto)
+Minh attached a hand-crank generator
 and tied wires to the prisoner’s ears, hands, and feet.
 He turned the crank lightly;
 the man moaned.
-
 Suddenly Minh cranked hard.
 The man screamed and fell to the ground.
 
 We were about to help him up
 when Minh let go of the generator
 and hopped around the table on one foot, laughing:
-
-“A! You were pretending!
-You were pretending!”
+“A! I got you! I got you!”
 
 He ordered him taken back to the cell.
 We asked why.
 Still smiling, Minh explained:
-
 “I disconnected the wires before turning hard.
 He thought I was going to shock him,
 so he acted it out himself.”
 
-We all admired his sharp mind.
+Back in the day, we all admired his sharp and witty mind!
+
+$ * * * $
 
 During the national resistance against the French,
 Minh was appointed Director of Public Security for Zone X.
@@ -195,20 +195,20 @@ If we all climb up, we’ll be soaked.”
 
 The officer heard him,
 but shouted:
-“Who said that? Come up here!”
+“Which bastard said that? Come up here!”
 
 The man who had spoken stood up —
-a stocky, middle-aged man in brown clothes and a conical hat.
+a stocky, middle-aged man in brown clothes and a nón lá.
 He stepped to the prow and said:
 
-“Who said it? Your Director said it.
+“Which bastard? Your Director said it.
 Your Director said it.”
 
 Everyone stared in surprise.
 The quiet man who had chatted cheerfully earlier
 turned out to be the Director of Public Security.
 
-Naturally, the young officer was later reprimanded,
+Naturally, the young officer was later disciplined,
 and the checkpoint changed its ways.
 
 After the Border Campaign victory,
