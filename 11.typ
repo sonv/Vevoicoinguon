@@ -1,4 +1,4 @@
-= 11.  Stories About a Tiger
+= 11.  Stories About Tigers
 
 By mid-1950,
 French colonial forces finally carried out their plan
