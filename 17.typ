@@ -1,4 +1,4 @@
-= 17. Protecting Bác Hồ on His Visits to Southeast Asia
+= 17. Protecting Uncle Hồ on His Visits to Southeast Asia
 
 In 1958, Bác Hồ visited India and Burma (now Myanmar).
 In early 1959, Bác visited Indonesia.

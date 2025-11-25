@@ -1,4 +1,4 @@
-= 29. Dinh Độc Lập, ngày 1/5/1975
+= 29. Independence Palace, May 1, 1975
 
 Around noon on 30 April 1975, a battalion of our troops advanced into the 3 Bạch Đằng area and freed me from the prison of the Central Intelligence of the Sài Gòn regime.
 Comrade Du, the battalion commander, took me to the place where his unit’s command was stationed, at the former Navy Headquarters on Bạch Đằng street.

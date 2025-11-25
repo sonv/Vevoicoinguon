@@ -1,8 +1,8 @@
-= 7. Cụ Minh Già
+= 7. Old Minh
 
 At the end of September 1945, when I returned from Tân Trào to Hà Nội with Lê Giản
 and was assigned to Nha Liêm phóng Bắc Bộ,
-“old Minh”  was already there.
+“old Minh” was already there.
 After the August Revolution of 1945, the Party placed him in Công an
 because he had long experience being arrested by French intelligence
 and spending years in prison.

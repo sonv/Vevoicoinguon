@@ -1,4 +1,4 @@
-= 28. Tết in the prisons of the Mỹ–ngụy
+= 28. Tết in the prisons of the Mỹ–Ngụy
 People often say: “A day in prison is like a thousand years outside.”
 
 I was arrested and imprisoned for exactly four years, four months, and ten days; and I was held in solitary confinement from beginning to end.
